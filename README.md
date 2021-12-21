@@ -1,2 +1,0 @@
-# Riwayat-Hidup
-Biodata Diri
